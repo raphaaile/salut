@@ -1,6 +1,6 @@
 ## Welcome to GitHub Pages
 
-![sirshasana homepage](src)
+![sirshasana homepage](https://github.com/raphaaile/salut/edit/master/README.md)
 
 salut n. m. 
 1 Préservation de la vie. _Les passagers n'ont dû leur salut qu'à leur ceinture de sécurité._ 
