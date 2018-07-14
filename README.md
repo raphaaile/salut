@@ -2,10 +2,10 @@
 
 ![sirshasana homepage](https://github.com/raphaaile/salut/blob/master/sirshasana%20homepage.jpg)
 
-salut n. m. 
-1 Préservation de la vie. _Les passagers n'ont dû leur salut qu'à leur ceinture de sécurité._ 
-2 Bonheur éternel. _Le salut de l’âme._
-3 Salutation. _Faire un salut de la main. | Salut! | Je te verrai demain!
+**salut** n. m. 
+1 **Préservation de la vie.** _Les passagers n'ont dû leur salut qu'à leur ceinture de sécurité._ 
+2 **Bonheur éternel.** _Le salut de l’âme._
+3 **Salutation.** _Faire un salut de la main. | Salut! | Je te verrai demain!
 
 Raphaël a commencé le yoga à Varkala dans le Kerala il y a plus de 25 ans de cela. Il a eu la chance de rencontrer par la suite Jean Lechim par hasard qui l'a formé depuis et dont il a vite été conquis par son approche à la fois rigoureuse dans les détails mais laissant une place importante à la détente, la respiration et la relaxation. 
         Il a parallèlement pratiqué la méditation Vipassana qui est un parfait complément à la pratique posturale. Il a par moments délaissé le yoga pour se lancer dans d'autres aventures mais a réalisé depuis qu'au delà des plaisirs mondains et sportifs, seuls le yoga et la méditation parviennent à l'emmener dans un espace et un moment magique.
